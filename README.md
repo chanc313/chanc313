@@ -1,3 +1,3 @@
 
-Powered by human PM logic and AI slave stamina
+Powered by human PM logic and AI slave stamina\n
 still on my way...
