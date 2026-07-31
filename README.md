@@ -1,1 +1,3 @@
-Half human PM, half AI workhorse
+
+Powered by human PM logic and AI slave stamina
+still on my way...
